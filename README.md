@@ -4,11 +4,11 @@
 
 <p align="center"><em>;; hiya, i'm vegeta [veg(e), veggie, vegetable] / astro ;3</em></p>
 
-<p align="center">──────────────────── ✦ ────────────────────</p>
+<p align="center">──────────────────── 気 ────────────────────</p>
 
 <p align="center"><em>here you can read about me, my dni list, int list, etc. so you'll know how to interact &lt;3</em></p>
 
-<p align="center">✦ ──────────────── about me ; ──────────────── ✦</p>
+<p align="center">気 ──────────────── about me ; ──────────────── 気</p>
 
 <p align="center">
 <em>
@@ -19,7 +19,7 @@
 </em>
 </p>
 
-<p align="center">✦ ──────────────── power level ; ──────────────── ✦</p>
+<p align="center">気 ──────────────── power level ; ──────────────── 気</p>
 
 <p align="center">
 <em>
@@ -31,7 +31,7 @@
 </em>
 </p>
 
-<p align="center">✦ ──────────────── int/dni ; ──────────────── ✦</p>
+<p align="center">気 ──────────────── int/dni ; ──────────────── 気</p>
 
 <p align="center">
 <em>
@@ -40,12 +40,12 @@
 ✦ int ; respectful chaotic energy<br><br>
 ✦ dni ; weird negativity<br>
 ✦ dni ; unnecessary drama<br>
-✦ dni ;  rp/erp<br>
+✦ dni ; rp/erp<br>
 ✦ dni ; "could u help me with party limit"<br>
 ✦ dni ; irisa<br>
 </em>
 </p>
 
-<p align="center">──────────────────── 🟠 ────────────────────</p>
+<p align="center">──────────────────── 🟠★ ────────────────────</p>
 
 <p align="center"><em>"even the lowest class warrior can surpass an elite." ✦</em></p>
