@@ -12,10 +12,10 @@
 
 <p align="center">
 <em>
-✦ 🟠 ; dragonball obsessed freak (especially vegeta n frieza)<br>
+✦ 🟠 ; dragonball obsessed freak (especially vegeta n frieza, obviously)<br>
 ✦ 🌌 ; space enjoyer (bless saturn!!)<br>
 ✦ 🔥 ; pepsi & water enjoyer <br>
-✦ 😔 ; not very social unless i have a good day
+✦ 😔 ; not very talkative unless i have a good day
 </em>
 </p>
 
