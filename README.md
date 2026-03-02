@@ -35,7 +35,7 @@
 
 <p align="center">
 <em>
-✦ int ; dragonball fans/ocs<br>
+✦ int ; dragonball fans<br>
 ✦ int ; nice people<br>
 ✦ int ; respectful chaotic energy<br><br>
 ✦ dni ; weird negativity<br>
