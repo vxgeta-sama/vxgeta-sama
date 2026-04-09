@@ -1,21 +1,26 @@
 <h1 align="center">気 ; "私は宇宙の希望です . . ." ; ✦</h1>
 
-<p align="center"><em>thank you for checking my profile ! 🟠</em></p>
+<p align="center"><em>thanks for scanning my power level ! 🟠</em></p>
 
-<p align="center"><em>;; hiya, i'm vegeta [veg(e), veggie, vegetable] / astro ;3</em></p>
+<p align="center"><em>; i’m vegeta [veg(e), veggie, vegetable] / astro :3</em></p>
+
+<p align="center"><em>; my pronouns are she / him</em></p>
 
 <p align="center">──────────────────── 気 ────────────────────</p>
 
-<p align="center"><em>here you can read about me, my dni list, int list, etc. so you'll know how to interact &lt;3</em></p>
+<p align="center"><em>
+a little scouter readout on me — includes my traits, dni list, int list, and other stuff so you know how to interact with me without getting eliminated <3
+</em></p>
 
 <p align="center">気 ──────────────── about me ; ──────────────── 気</p>
 
 <p align="center">
 <em>
-✦ 🟠 ; dragonball obsessed freak (especially frieza 😋)<br>
-✦ 🌌 ; space enjoyer (bless saturn!!)<br>
-✦ 🔥 ; pepsi & water enjoyer <br>
-✦ 😔 ; not very talkative unless i have a good day
+✦ 🟠 ; dragonball brainrot (frieza lives rent free in my head 😋)<br>
+✦ 🌌 ; space enjoyer — planet namek supremacy!!<br>
+✦ 🔥 ; tea addict — basically my senzu substitute<br>
+✦ 😔 ; not very talkative unless i’m comfortable or vibing with the right people<br>
+✦ 🫶 ; usually found chilling at docks or bakery, but docks are my main base like it's my frieza spaceship
 </em>
 </p>
 
@@ -23,11 +28,11 @@
 
 <p align="center">
 <em>
-✦ ; base form — calm & chill<br>
-✦ ; ssj — passionate about my interests<br>
-✦ ; ssj2 — ranting about dragonball lore<br>
-✦ ; ssj blue — side by side with my chosen one (husband<3)<br>
-✦ ; ultra ego — do NOT test me (/j)
+✦ ; first form — calm, lowkey just doing my things<br>
+✦ ; second form — gets way too into my interests and won't shut up about them<br>
+✦ ; final form (full power) — deep in dragonball lore arguments at all hours<br>
+✦ ; golden form — thriving with my chosen one (my lovely husband <3)<br>
+✦ ; black form — don’t push me, i'll bite hard 😝 (/j)<br>
 </em>
 </p>
 
@@ -35,17 +40,16 @@
 
 <p align="center">
 <em>
-✦ int ; dragonball fans<br>
-✦ int ; nice people<br>
-✦ int ; respectful chaotic energy<br><br>
-✦ dni ; weird negativity<br>
-✦ dni ; unnecessary drama<br>
-✦ dni ; rp/erp<br>
-✦ dni ; "could u help me with party limit"<br>
-✦ dni ; irisa<br>
+✦ int ; fellow dragonball fans (saiyans, frieza enjoyers, anyone really)<br>
+✦ int ; chill people with good ki<br>
+✦ int ; metal listerens (i need song suggestions)<br>
+✦ dni ; unnecessary drama, leave that in the hyperbolic time chamber pls<br>
+✦ dni ; rp/erp, just no<br>
+✦ dni ; "could u help me with party limit" nope i can't, i pay for my supporter 😭<br>
+✦ dni ; taking inspo/copying my skins or shading style and claiming it as yours (scouter reading: absolute retard)<br>
 </em>
 </p>
 
 <p align="center">──────────────────── 🟠★ ────────────────────</p>
 
-<p align="center"><em>"even the lowest class warrior can surpass an elite." ✦</em></p>
+<p align="center"><em>"monkey." ✦</em></p>
