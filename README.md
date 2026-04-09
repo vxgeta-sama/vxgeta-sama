@@ -42,7 +42,7 @@ a little scouter readout on me — includes my traits, dni list, int list, and o
 <em>
 ✦ int ; fellow dragonball fans (saiyans, frieza enjoyers, anyone really)<br>
 ✦ int ; chill people with good ki<br>
-✦ int ; metal listerens (i need song suggestions)<br>
+✦ int ; metal listeners (i need song suggestions)<br>
 ✦ dni ; unnecessary drama, leave that in the hyperbolic time chamber pls<br>
 ✦ dni ; rp/erp, just no<br>
 ✦ dni ; "could u help me with party limit" nope i can't, i pay for my supporter 😭<br>
