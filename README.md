@@ -20,7 +20,7 @@ a little scouter readout on me — includes my traits, dni list, int list, and o
 ✦ 🌌 ; space enjoyer — planet namek supremacy!!<br>
 ✦ 🔥 ; tea addict — basically my senzu substitute<br>
 ✦ 😔 ; not very talkative unless i’m comfortable or vibing with the right people<br>
-✦ 🫶 ; usually found chilling at bakery or docks, but bakery is my main base like it's my frieza spaceship
+✦ 🫶 ; usually found chilling at bakery or docks, but docks is my main base like it's my frieza spaceship
 </em>
 </p>
 
