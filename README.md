@@ -46,7 +46,7 @@ a little scouter readout on me — includes my traits, dni list, int list, and o
 ✦ dni ; unnecessary drama, leave that in the hyperbolic time chamber pls<br>
 ✦ dni ; rp/erp, just no<br>
 ✦ dni ; "could u help me with party limit" nope i can't, i pay for my supporter 😭<br>
-✦ dni ; taking inspo/copying my skins or shading style and claiming it as yours (scouter reading: absolute retard)<br>
+✦ dni ; taking inspo without asking/copying my skins or shading style and claiming it as yours (scouter reading: absolute retard)<br>
 </em>
 </p>
 
