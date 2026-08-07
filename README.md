@@ -16,7 +16,7 @@ a little scouter readout on me — includes my traits, dni list, int list, and o
 
 <p align="center">
 <em>
-✦ 🟠 ; dragonball brainrot (frieza lives rent free in my head 😋)<br>
+✦ 🟠 ; dragonball brainrot (frieza lives rent free in my head 24/7 😋)<br>
 ✦ 🌌 ; space enjoyer — planet namek supremacy!!<br>
 ✦ 🔥 ; tea addict — basically my senzu substitute<br>
 ✦ 😔 ; not very talkative unless i’m comfortable or vibing with the right people<br>
